@@ -1,2 +1,0 @@
-# ynamicdelhi.in
-ynamicdelhi.in
